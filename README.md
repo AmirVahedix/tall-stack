@@ -2,8 +2,8 @@
 
 # Laravel TALL Stack
 
-Read article in <a href="https://virgool.io/me/stats/post/bzldboonel3x" target="_blank"> this link </a>
+Read article in <a href="https://vrgl.ir/NHq8Y" target="_blank"> this link </a>
 
 
 # اسکلت بندی پروژه لاراول با TALL
-خواندن مقاله در <a href="https://virgool.io/me/stats/post/bzldboonel3x" target="_blank"> این لینک </a>
+خواندن مقاله در <a href="https://vrgl.ir/NHq8Y" target="_blank"> این لینک </a>
